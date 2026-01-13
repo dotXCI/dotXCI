@@ -1,5 +1,4 @@
-## https://fakecrime.bio/dtr69
-
+<img src="https://count.getloli.com/@a?name=a&theme=original-new&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=0" />
 <!--
 **dotXCI/dotXCI** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
